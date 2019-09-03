@@ -1,4 +1,2 @@
-This is my Readme
-
-flutterwave post https://twitter.com/honor_writes/status/1164673752640217088
-my lucid post link   https://lucid.blog/honorwrites/post/1566582495
+This is the CV belonging to Chiamaka Osuji of the HNG pre-internship programme.
+The CV has a contact form included at the bottom of the page
